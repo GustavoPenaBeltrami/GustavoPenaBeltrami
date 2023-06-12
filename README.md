@@ -1,4 +1,5 @@
-### Hi there 👋
+![image](https://github.com/GustavoPenaBeltrami/GustavoPenaBeltrami/assets/68975605/b90eacd2-bc51-42cf-823c-603a8695e434)
+
 
 <!--
 **GustavoPenaBeltrami/GustavoPenaBeltrami** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
