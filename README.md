@@ -1,4 +1,3 @@
-![image](https://github.com/GustavoPenaBeltrami/GustavoPenaBeltrami/assets/68975605/b90eacd2-bc51-42cf-823c-603a8695e434)
 
 
 <!--
